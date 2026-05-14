@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://copperspiderintrigue.github.io/icecream-pdf-edito-za49/) |
  |---------------------|----------------------:|
 
 
